@@ -5,7 +5,7 @@
 
 **BETWEEN REFERRAL PARTNERS:**
 - Eric Laquer
-- Syed
+- Syed Parvez
 - Peter Kenny
 
 ## 1. PURPOSE
@@ -75,7 +75,7 @@ ___________________________    _______________
 Eric Laquer                     Date
 
 ___________________________    _______________
-Syed                           Date
+Syed Parvez                    Date
 
 ___________________________    _______________
 Peter Kenny                    Date

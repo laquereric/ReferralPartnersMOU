@@ -8,7 +8,7 @@ Create a memo of understanding between Referral Partners: Eric Laquer, Syed and 
 
 The memo of understanding has been created with the following key components:
 
-1. **Formal Agreement Structure**: A comprehensive memorandum of understanding between Eric Laquer, Syed, and Peter Kenny as Referral Partners.
+1. **Formal Agreement Structure**: A comprehensive memorandum of understanding between Eric Laquer, Syed Parvez, and Peter Kenny as Referral Partners.
 
 2. **Commission Structure**:
    - Equal split of commission payments among all Referral Partners for business introductions
